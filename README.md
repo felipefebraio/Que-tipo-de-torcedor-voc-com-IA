@@ -1,0 +1,1 @@
+# Que-tipo-de-torcedor-voc-com-IA
